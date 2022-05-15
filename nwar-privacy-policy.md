@@ -3,7 +3,7 @@ Conditions Générales d’Utilisation de l’Application Mobile NWAR
 
 ARTICLE 1 : INTRODUCTION
 
-La société́ NWAR SAS au capital de 23.400 euros, inscrite au RCS de la ville de ……. sous le numéro 828 598 839, dont le n° de SIRET est 82859883900011, dont le siège social se situe 27 rue Gabriel Péri, 92300 Levallois-Perret, exploite l’Application Mobile « POPMOMS » ci-après dénommée « l’Application Mobile » ou « le Service » ;
+La société́ NWAR SAS au capital de 23.400 euros, inscrite au RCS de la ville de paris. sous le numéro 828 598 839, dont le n° de SIRET est 82859883900011, dont le siège social se situe 27 rue Gabriel Péri, 92300 Levallois-Perret, exploite l’Application Mobile « POPMOMS » ci-après dénommée « l’Application Mobile » ou « le Service » ;
 
 Le directeur de la publication du Service est Madame Carmen KERVELLA. L’adresse électronique du contact est : contact@popmoms.com
 
